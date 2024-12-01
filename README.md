@@ -1,2 +1,2 @@
 # Certifications-Awards
-List of all the certifications and Awards
+List of all the Certifications and Awards
